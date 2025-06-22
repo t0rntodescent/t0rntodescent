@@ -1,1 +1,1 @@
-https://www.tumblr.com/dragonscale-lunaris/758411414371205120/may-i-req-an-obamitsu-ds-graphic-please-and?source=share
+https://discord.com/channels/@me/1344446085581639772/1386408500900532336
