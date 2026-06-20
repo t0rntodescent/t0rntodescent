@@ -1,1 +1,1 @@
-![](https://komarev.com/ghpvc/?username=t0rntodescent&color=blue)
+<p align="center"> <img src="![](https://komarev.com/ghpvc/?username=t0rntodescent&color=ffffff)
