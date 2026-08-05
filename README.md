@@ -12,4 +12,4 @@
 ![.](https://files.catbox.moe/6a51l0.png)
 
 <p align="center">
-**[@pt-friendships](https://github.com/pt-friendships)** (*ゝω･*)
+<a href="https://github.com/pt-friendships">pt-friendships </a> (*ゝω･*)
