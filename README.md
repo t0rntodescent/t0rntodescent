@@ -9,7 +9,8 @@
 
   ![.](https://files.catbox.moe/ewp8u4.png)
 
-![.](https://files.catbox.moe/6a51l0.png)
+
 
 <p align="center">
 <a href="https://github.com/pt-friendships">pt-friendships </a> (*ゝω･*)
+
