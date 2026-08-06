@@ -12,5 +12,5 @@
 
 
 <p align="center">
-<a href="https://github.com/pt-friendships">pt-friendships </a> <a href="https://github.com/pt-fashion">pt-faahion </a> (*ゝω･*)
+<a href="https://github.com/pt-friendships">pt-friendships </a> <a href="https://github.com/pt-fashion">pt-fashion </a> (*ゝω･*)
 
