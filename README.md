@@ -16,3 +16,5 @@
 
 ![.](https://files.catbox.moe/97vrlx.png)
 
+<p align="center">
+stupid fuckers : <a href="https://github.com/phainonirl">moth </a>ㅤ𖹭ㅤ<a href="https://github.com/sunnegisel">cas </a>ㅤ𖹭ㅤ<a href="https://github.com/HiromiAndSanemiLover">chalk </a>
