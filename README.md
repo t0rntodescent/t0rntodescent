@@ -2,7 +2,7 @@
 <p align="center">
   𝓕ooᥣιsh drᥱᥲmᥱr ...
 
-  ![.](https://files.catbox.moe/km9ro7.png)
+  ![.](https://files.catbox.moe/06m05m.png)
 
 <p align="center">
   ... 𝓑ᥱ ᥲwᥲkᥱᥒᥱd.
