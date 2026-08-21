@@ -3,4 +3,4 @@
   <p align="center">
     (*ゝω･*)
 <p align="center">
-stupid fuckers : <a href="https://github.com/phainonirl">moth</a>ㅤ𖹭ㅤ<a href="https://github.com/sunnegisel">cas</a>ㅤ𖹭ㅤ<a href="https://github.com/HiromiAndSanemiLover">chalk </a>
+stupid fuckers : <a href="https://github.com/phainonirl">moth</a>ㅤ𖹭ㅤ<a href="https://github.com/mydeifies">cas</a>ㅤ𖹭ㅤ<a href="https://github.com/HiromiAndSanemiLover">chalk </a>
